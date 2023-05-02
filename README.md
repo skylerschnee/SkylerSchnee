@@ -1,1 +1,1 @@
-#### CodeUp Data Science Student | Army Veteran
+#### Data Scientist | Army Veteran
